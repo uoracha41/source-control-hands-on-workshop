@@ -1,1 +1,1 @@
-This project is written by JiJoii, Earth
+This project is written by JiJoii, Earth, Gifted, Noon
