@@ -1,1 +1,1 @@
-This project is written by JiJoii
+This project is written by JiJoii, Earth
